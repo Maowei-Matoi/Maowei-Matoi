@@ -9,5 +9,5 @@
 - 💬 Ask me about China.
 - 📫 How to reach me: Maoweimatoi@outlook.com
 - 😄 Pronouns: DINO
-- ⚡ Fun fact: Not every artis in Florence during the Renaissance was gay.
+- ⚡ Fun fact: Not every artist in Florence during the Renaissance was gay.
 -->
